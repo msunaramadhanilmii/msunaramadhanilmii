@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello this my profile github thanks for coming 🤝
+Hello there, thanks for comming and nice to meet you 🤝
 
 
 ## 🌐 Socials:
